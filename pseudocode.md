@@ -1,4 +1,4 @@
-# How to make spaghetti 
+# How to make Spaghetti 
 ![](https://foodal.com/wp-content/uploads/2021/03/Weeknight-Spaghetti-Bolognese.jpg)
 
 
