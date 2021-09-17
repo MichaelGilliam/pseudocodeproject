@@ -27,7 +27,7 @@
 
 12: Stir the meat until it is evenly cooked all sides.
 
-13: Grab tomtato sauce can, and twist the cap until it it is loose.
+13: Grab tomtato sauce can, and twist the cap until it is loose.
 
 14: Put the cap down on the counter in a open space.
 
